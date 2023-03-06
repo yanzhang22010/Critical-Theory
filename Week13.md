@@ -2,7 +2,7 @@
 
 ## Designer-Maker-User
 
-![7141678137285_ pic_hd](https://user-images.githubusercontent.com/119860662/223232599-f865cd58-6fd0-4d51-889d-d336fcb50e16.jpg)
+![7181678137638_ pic](https://user-images.githubusercontent.com/119860662/223233573-7f01ae78-501a-4d8b-8965-14c33c7f0008.jpg)
 
 From the point of view of the designer, the maker, and the user, and the relationship between the three, the exhibition features almost 1,000,20th and 21st-century designs, it covers everything from the Industrial Revolution to the digital age. For over 100 years, food, clothing, housing, and transportation have been very epoch-making and landmark items. In this exhibition, the audience can see the same object from the original version to the present.
 Personally, I don't think Designer-Maker-User's exhibition is very much like an art exhibition, like a textbook popularization of design knowledge. Inside the museum, you can see how many products you can see everywhere in your life are designed, the creation process of the designer, the evolution of the design products, the design specifications of the typeface and logo, and so on are also clearly shown.
