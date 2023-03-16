@@ -1,5 +1,6 @@
 ## Week16
 
+I think Victoria Modesta's work contains elements of transhumanism and posthumanism.
 In contemporary society, with the development of technology and culture, the definition of an artist has undergone significant changes. Generally speaking, posthuman artists refer to those who use advanced scientific technologies to create art. Victoria Modesta, as a singer, creative director, and television presenter, performs with a unique music style and visual effects in her works.
 
 <img width="1274" alt="截屏2023-03-16 04 47 50" src="https://user-images.githubusercontent.com/119860662/225523713-33bf5dff-9c48-4055-aa53-7c6f27c29c51.png">
