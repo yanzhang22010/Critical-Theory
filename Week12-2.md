@@ -19,6 +19,4 @@ When I left the observation deck, I saw a group of individuals gathered in the c
 
 The 0021 space station was not just a place for scientific advancement, but also a place for personal growth and discovery. It was a place where people could come together and learn from one another, regardless of their differences.When I arrived at the end of the day, I thought about the GMY station and what it meant. It is a place where differences are not only tolerated but celebrated, where people of different backgrounds and abilities can come together and thrive. In this place, technology does not replace humans, but enhances them and makes everyone's life better.
 
-When I arrived at the end of the day, I thought about the GMY station and what it meant. It is a place where differences are not only tolerated but celebrated, where people of different backgrounds and abilities can come together and thrive. In this place, technology does not replace humans, but enhances them and makes everyone's life better.
-
 As I drift off to sleep, I wonder what the future holds for the GMY station and humanity. Will we continue to embrace diversity and work together for a better future, or will we slip back into the old patterns of fear and division? Only time will tell, but for now, I'm grateful to be part of this incredible experiment in human cooperation and innovation.
